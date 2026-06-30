@@ -1,3 +1,3 @@
-## Hi there 👋
+## Hi Hi
 
-i am maxim
+i am Maxim Popov.
